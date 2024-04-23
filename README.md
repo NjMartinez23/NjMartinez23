@@ -3,7 +3,9 @@ Hi, I’m Nicolas Martinez! I'm a determined, patient and empathic Junior Full S
 Tucumán - Argentina 
 
 Contact~
+
 LinkedIn:  https://www.linkedin.com/in/nicolas-j-martinez-r/
+
 E-mail:  MartinezN710@gmail.com
 
 <!---

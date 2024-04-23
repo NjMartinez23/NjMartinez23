@@ -1,4 +1,4 @@
-Hi, I’m Nicolas Martinez!
+Hi, I’m Nicolas Martinez! I'm a determined, patient and empathic Junior Full Stack Web Developer who enjoys organization, problem solving and team working, taking every experience as an opportunity to improve myself and learn new skills in the process. Especially interested in Front End development and graphic design! 
 
 Tucumán - Argentina 
 
